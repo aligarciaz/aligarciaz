@@ -5,8 +5,6 @@
 
 - 📄 Conoce mis experiencias [https://www.linkedin.com/in/aliwoof/](https://www.linkedin.com/in/aliwoof/)
 
-- ⚡ Dato curioso **Creo que soy gracioso**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
