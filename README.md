@@ -3,7 +3,7 @@
 
 - 📫 Cómo contactarme **alan.ali.g@outlook.com**
 
-- 📄 Conoce mis experiencias [https://www.linkedin.com/in/aliwoof/](https://www.linkedin.com/in/aligarciaz/)
+- 📄 Conoce mis experiencias [https://www.linkedin.com/in/aligarciaz/](https://www.linkedin.com/in/aligarciaz/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
